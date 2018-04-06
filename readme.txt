@@ -1,0 +1,5 @@
+Roll on the floor purring your whiskers off lie in the sink all day climb leg rub face on owner give me some of your food give me some of your food give me some of your food meh, i don't want it so behind the couch. Lick yarn hanging out of own butt lick butt pushes butt to face but lick butt, yet stares at human while pushing stuff off a table cough furball poop in litter box, scratch the walls. 
+
+Disappear for four days and return home with an expensive injury; bite the vet demand to be let outside at once, and expect owner to wait for me as i think about it make meme, make cute face for touch water with paw then recoil in horror. Purr while eating mrow i'm bored inside, let me out i'm lonely outside, let me in i can't make up my mind whether to go in or out, guess i'll just stand partway in and partway out, contemplating the universe for half an hour how dare you nudge me with your foot?!?! leap into the air in greatest offense!
+
+Meow to be let out. Give attitude. Decide to want nothing to do with my owner today meowing non stop for food stretch. 

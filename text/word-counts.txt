@@ -1,0 +1,8 @@
+     412 dracula-synopsis.txt
+   28761 dracula.txt
+   78097 frankenstein.txt
+     521 horror-ipsum.txt
+     576 sparkly-vampires.txt
+     315 vampire.txt
+      91 zombie-ipsum.txt
+  108773 total
